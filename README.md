@@ -11,5 +11,3 @@ In spite of the fact that UTN is placed in Argentina, I will translate the first
 In english: For the person who is reading this, I will introduce myself. I'm Federico, I like national cinema, old crazy women and raspberry icecream. 
 
 ¡IMPORTANT! old crazy women is the translation for "Viejas locas". It is not a description about my taste in women".
-
-(alguien señaleme lo de la foto así la subo)
