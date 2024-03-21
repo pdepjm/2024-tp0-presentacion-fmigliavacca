@@ -1,5 +1,6 @@
 # 2024-tp0-presentacion-fmigliavacca created by GitHub Classroom
 Federico Migliavacca.
+![image](https://github.com/pdepjm/2024-tp0-presentacion-fmigliavacca/assets/163766676/2ffaecbe-2cdf-48b7-a6ee-f3c8f030f84f)
 
 Legajo: 213.894-3
 
